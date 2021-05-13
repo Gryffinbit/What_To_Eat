@@ -22,8 +22,7 @@
 
 ## 结果展示
 
-![](https://gryffinbit-1304014832.cos.ap-chengdu.myqcloud.com/Blog/eat(1).png)
-
+![](https://gryffinbit-1304014832.cos.ap-chengdu.myqcloud.com/Blog/Screen Shot 2021-05-13 at 2.24.35 PM.png)
 
 
 ## 控诉权哥
